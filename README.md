@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @sinamini12
+- 👀 I’m interested in coding
